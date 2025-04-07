@@ -1,1 +1,1 @@
-# Class-10th-science-notes
+# Class_10_Science_Notes_Smart_Study.pdf
